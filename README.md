@@ -1,1 +1,1 @@
-# seoseongpyo
+# lotto-goyunhee
